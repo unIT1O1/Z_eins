@@ -1,0 +1,10 @@
+Z_eins
+Zeit
+Einsatz
+erfassung
+planung
+planerfassung
+ung
+planerfass
+fassplaner
+...
